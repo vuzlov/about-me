@@ -1,1 +1,9 @@
-# about-me
+# about-meSo, let me introduce myself. My name is Pavel, my surname is Demidoff. I’m 19 years old man. As you might have already understood, I’m a student.
+
+I have been studying at Saint-Petersburg State Medical University named after I.Pavlov since 2013, and I’m going to be a highly qualified specialist in surgery as my dad. People say that I’m very respectful, sociable, flexible and caring. I hope that all these characteristics can help me to become a good doctor. I’m absolutely sure, that when I complete my degree, I might get the opportunity to start a stable and fantastic career in the main hospital of our city.
+
+I grew up in a happy family. I had an elder brother and two little sisters and this brightened my childhood, as we were always together. It helped me to learn how to communicate and collaborate with people even if I don’t want to do it. My parents had perfect stable careers and this provided us with more opportunities to get everything we wanted: expensive toys, new gadgets, brand clothes and travelling. When I was younger I played piano and my parents wanted me to become a great pianist. It was too hard to disappoint them when I decided to be a doctor, to heal people and to take care about them.
+
+As for my interests, I devote much time to coin collecting and writing my own medical researches. Moreover, some years ago I started to write a fantasy novel in George Martin’s style. I suppose that when I finish it, the novel becomes a bestseller of a year. I also like computer games and good rock music.
+
+I’m very sociable, that’s why I have a lot of friends and a lovely girlfriend. It would be a mistake to say that I’m the life and the sole of the party, but my friends try to stay in touch with me anytime and share their secrets with me. I’m a smart and a handsome young man and people like me. I highly appreciate this and always give feedback.
